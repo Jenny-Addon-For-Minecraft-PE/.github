@@ -3,7 +3,7 @@
 In the vast universe of Minecraft, a game renowned for its limitless possibilities and boundless creativity, the Jenny Addon emerges as a standout modification that significantly enhances the gameplay experience. This mod introduces an interactive companion, Jenny, who brings new dynamics and interactions to the game’s already rich environment. This comprehensive guide delves into the Jenny Addon for Minecraft, exploring its features, installation process, and the unique gameplay opportunities it offers.
 
 ## 📌Link Download: [Jenny Addon Minecraft](https://bom.so/xIZnvV)
-
+![Screenshot_1](https://play-lh.googleusercontent.com/corgbhiq6plOJlgLkNY8U3MKsTW9gjGYrngIKenIkZS1PvTXzOGdTZgJjqVdMfBfRg=w540-h302-rw)
 ### **What is the Jenny Addon?**
 
 The Jenny Addon for Minecraft is a popular mod that adds a new non-player character (NPC) to the game, named Jenny. Unlike traditional NPCs in Minecraft, Jenny is designed to interact more dynamically with the player, offering services, companionship, and a touch of realism to the game world. The mod is designed to be compatible with various versions of Minecraft, providing a seamless integration that enhances the player's experience without disrupting the core mechanics of the game.
